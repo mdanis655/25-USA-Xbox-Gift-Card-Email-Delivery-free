@@ -7,7 +7,7 @@ Hey gamers! 🎮 Want to get your hands on a FREE Xbox Gift Card? 🙌 It’s ea
 
 🔹 Simply complete a quick offer or survey 🔹 Unlock your FREE Xbox Gift Card code instantly 🔹 Enjoy your gaming experience even more with free credits!
 
-**👉 Click the link to get started NOW:(https://giftcardwall.com/xbox/)**
+**[👉 Click the link to get started NOW:](https://giftcardwall.com/xbox/)**
 
 Don't miss out! This offer is limited, so act fast! ⏳
 
